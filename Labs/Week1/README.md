@@ -1,0 +1,1 @@
+Follow [Fiber Optic Cable vs Twisted Pair Cable vs Coaxial Cable](https://community.fs.com/article/the-difference-between-fiber-optic-cable-twisted-pair-and-cable.html) to study more about the difference between types of cable.
